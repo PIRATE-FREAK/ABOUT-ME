@@ -12,7 +12,7 @@ $\color{#fffffd}\text{ ⧽ INTJ ⋮ SO135 ⋆˙⟡ 1W9}$<br/>
 <br/>
 $\color{#fffffd}\text{ SINGLE }$<br/>
 <br/>
-<a href="https://piratefreak.carrd.co/">CARRD</a> ◞ <a href="https://piratefreak.atabook.org/">ATABOOK</a> ◞ <a href="https://piratefreak.straw.page/">STRAWPAGE</a> ◞ <a href="">GUNS.LOL</a><br/>
+<a href="https://piratefreak.carrd.co/">CARRD</a> ◞ <a href="https://piratefreak.atabook.org/">ATABOOK</a> ◞ <a href="https://piratefreak.straw.page/">STRAWPAGE</a> ◞ <a href="https://guns.lol/pirate.freak">GUNS.LOL</a><br/>
 <br/>
 <img width="600" height="240" alt="Jack2 gh" src="https://github.com/user-attachments/assets/f1f5f93d-e99c-42ba-8839-402feeaae0a8" /><br/>
 </p><br/>
